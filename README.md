@@ -1,16 +1,24 @@
-## Hi there 👋
+### **bom dia seres irrelevantes**
 
-<!--
-**Wruthur/Wruthur** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-me chamo Arthur
 
-Here are some ideas to get you started:
+- estou aprendendo código javascript
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- prefiro não ser incomodado
+
+- caso tenha reclamações fale com minha pomba
+
+
+
+([https://tenor.com/pt-BR/view/triggered-ninjaturtle-turtle-angry-gif-21556809](https://media1.tenor.com/m/f42sidbznLwAAAAC/triggered-ninjaturtle.gif))
+
+
+
+
+
+### e quiser falar comigo entre em contato pelo email:
+arthur.wrublak@escola.pr.gov.br
+
+
+
+
