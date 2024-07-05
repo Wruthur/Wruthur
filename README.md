@@ -10,7 +10,7 @@
 
 
 
-([https://tenor.com/pt-BR/view/triggered-ninjaturtle-turtle-angry-gif-21556809](https://media1.tenor.com/m/f42sidbznLwAAAAC/triggered-ninjaturtle.gif))
+![](https://media1.tenor.com/m/f42sidbznLwAAAAC/triggered-ninjaturtle.gif)
 
 
 
